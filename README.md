@@ -12,6 +12,8 @@ Algunas webs permitidas para realizar la acción:
 
 https://posiciondigital.com
 https://prensacomunicarte.com
+https://www.prensaescrita.cl
+https://www.meganoticiaschile.com
 
 Da un ejemplo Y repite
 
