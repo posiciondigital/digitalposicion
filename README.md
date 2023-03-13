@@ -14,6 +14,8 @@ https://posiciondigital.com
 https://prensacomunicarte.com
 https://www.prensaescrita.cl
 https://www.meganoticiaschile.com
+https://www.correiorecife.com
+https://www.colocolonoticias.cl
 
 Da un ejemplo Y repite
 
