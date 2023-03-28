@@ -16,6 +16,8 @@ https://www.prensaescrita.cl
 https://www.meganoticiaschile.com
 https://www.correiorecife.com
 https://www.colocolonoticias.cl
+https://www.cuartanoticias.cl
+https://www.portavozchile.cl
 
 Da un ejemplo Y repite
 
