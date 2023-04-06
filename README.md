@@ -18,6 +18,8 @@ https://www.correiorecife.com
 https://www.colocolonoticias.cl
 https://www.cuartanoticias.cl
 https://www.portavozchile.cl
+https://www.impactodiario.cl
+https://www.riodejaneirodigital.com
 
 Da un ejemplo Y repite
 
