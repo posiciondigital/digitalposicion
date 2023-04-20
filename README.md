@@ -20,6 +20,10 @@ https://www.cuartanoticias.cl
 https://www.portavozchile.cl
 https://www.impactodiario.cl
 https://www.riodejaneirodigital.com
+https://www.ciudademprendedor.cl
+https://www.economiainteligente.cl
+https://www.efectociudadano.mx
+https://www.diarioindependiente.mx
 
 Da un ejemplo Y repite
 
