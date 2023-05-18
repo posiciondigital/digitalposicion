@@ -24,6 +24,8 @@ https://www.ciudademprendedor.cl
 https://www.economiainteligente.cl
 https://www.efectociudadano.mx
 https://www.diarioindependiente.mx
+https://islascanarias-24h.com
+https://valladolid24h.com
 
 Da un ejemplo Y repite
 
