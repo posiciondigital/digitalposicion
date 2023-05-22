@@ -26,6 +26,8 @@ https://www.efectociudadano.mx
 https://www.diarioindependiente.mx
 https://islascanarias-24h.com
 https://valladolid24h.com
+https://malaga-24h.com
+https://bermer.es
 
 Da un ejemplo Y repite
 
