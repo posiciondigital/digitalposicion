@@ -28,6 +28,8 @@ https://islascanarias-24h.com
 https://valladolid24h.com
 https://malaga-24h.com
 https://bermer.es
+https://diarioalbacete.com
+https://regulacionresponsable.es
 
 Da un ejemplo Y repite
 
