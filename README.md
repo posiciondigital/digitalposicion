@@ -30,6 +30,8 @@ https://malaga-24h.com
 https://bermer.es
 https://diarioalbacete.com
 https://regulacionresponsable.es
+https://santander24horas.com
+https://larioja24h.com
 
 Da un ejemplo Y repite
 
