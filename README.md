@@ -32,6 +32,10 @@ https://diarioalbacete.com
 https://regulacionresponsable.es
 https://santander24horas.com
 https://larioja24h.com
+https://actualidadlima.com
+https://economiaperu.com
+https://eldigitaldeperu.com
+https://diariodelpacifico.com
 
 Da un ejemplo Y repite
 
