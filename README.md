@@ -36,6 +36,8 @@ https://actualidadlima.com
 https://economiaperu.com
 https://eldigitaldeperu.com
 https://diariodelpacifico.com
+https://despertarandino.com
+https://elincadigital.com
 
 Da un ejemplo Y repite
 
