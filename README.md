@@ -38,6 +38,8 @@ https://eldigitaldeperu.com
 https://diariodelpacifico.com
 https://despertarandino.com
 https://elincadigital.com
+https://elofinanceiro.com
+https://motivoempreendedor.com
 
 Da un ejemplo Y repite
 
