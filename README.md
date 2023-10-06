@@ -40,6 +40,10 @@ https://despertarandino.com
 https://elincadigital.com
 https://elofinanceiro.com
 https://motivoempreendedor.com
+https://detailfinancial.com
+https://dailyenquire.com
+http://digitalfoundational.com
+https://digitalreporterusa.com
 
 Da un ejemplo Y repite
 
