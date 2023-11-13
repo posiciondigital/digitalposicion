@@ -44,6 +44,10 @@ https://detailfinancial.com
 https://dailyenquire.com
 http://digitalfoundational.com
 https://digitalreporterusa.com
+https://streamingnewyork.com
+https://thedailybreaker.com
+https://washingtonposition.com
+https://structurebusinessman.com
 
 Da un ejemplo Y repite
 
