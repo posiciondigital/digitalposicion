@@ -48,6 +48,10 @@ https://streamingnewyork.com
 https://thedailybreaker.com
 https://washingtonposition.com
 https://structurebusinessman.com
+http://locallosangelesnews.com
+http://financialmulticultural.com
+http://orlandobusinesscoaching.com
+http://oklahomafrontier.com
 
 Da un ejemplo Y repite
 
