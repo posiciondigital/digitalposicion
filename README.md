@@ -52,6 +52,10 @@ http://locallosangelesnews.com
 http://financialmulticultural.com
 http://orlandobusinesscoaching.com
 http://oklahomafrontier.com
+http://dailyquicknews.com
+http://capitaldigitalnews.com
+http://dailycitylive.com
+http://renovationsanfrancisco.com
 
 Da un ejemplo Y repite
 
